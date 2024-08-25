@@ -6,7 +6,7 @@ If you want to reach me, you can do so through Email or most socials under my na
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Mercury's Atomic symbol is Hg because it used to be called hydrargyrum which broken down into it's greek words means water and silver
 
-------------------------------------------------------------------------------------------------------------------------------------------------------->> About Me(Less Important)
+----------------------------------------------------------------------------------------------------------------------------------------------->> About Me(Less Important)
 <!---
 uwuanims/uwuanims is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
